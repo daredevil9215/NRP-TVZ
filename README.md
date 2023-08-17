@@ -1,1 +1,1 @@
-# Nekonvcencionalni računalni postupci
+# Nekonvencionalni računalni postupci
